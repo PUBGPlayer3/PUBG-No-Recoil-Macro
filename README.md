@@ -5,6 +5,10 @@
   <br>
   No Recoil PUBG Battlegrounds
   <br>
+  PUBG PC No Recoil Hack
+  <br>
+  PUBG PC No Recoil Script
+  <br>
   PUBG Battlegrounds No Recoil Macro Script Download
 </h1>
 
