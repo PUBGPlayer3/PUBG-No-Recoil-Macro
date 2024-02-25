@@ -18,4 +18,3 @@ Make the GUN stay at one point while Firing at the enemy with all types of Mouse
 # Get Access by checking below
 https://vimeo.com/911518220
 
-![alt text](https://raw.githubusercontent.com/PUBGPlayer3/PUBG-No-Recoil-Macro/main/aeca002.jpg)
