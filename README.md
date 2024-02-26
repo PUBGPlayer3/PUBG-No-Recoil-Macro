@@ -24,9 +24,10 @@ https://www.youtube.com/@little_edge
 <h2>Discord</h2>
 https://discord.gg/nm2kk22kg6
 
-<br>
+
 https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/ae4f07c3-0fc9-4676-a19c-0e2551aa526b
-<br>
+
+
 https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/9d895618-64f1-4464-8be1-df6e804021d1
 
 
