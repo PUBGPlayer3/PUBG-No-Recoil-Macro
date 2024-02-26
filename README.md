@@ -15,11 +15,19 @@
 # PUBG-No-Recoil-Macro
 Make the GUN stay at one point while Firing at the enemy with all types of Mouse, Guns and Games. Can be applied in PUBG Battlegrounds (PUBG PC Steam) and other games as well.
 
-# Get Access by checking below
+# Watch the below video for more Information
 https://vimeo.com/911518220
 
 <h2>YouTube</h2>
 https://www.youtube.com/@little_edge
+<br>
+<h2>Discord</h2>
+https://discord.gg/nm2kk22kg6
 
+<br>
 https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/ae4f07c3-0fc9-4676-a19c-0e2551aa526b
+<br>
+https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/9d895618-64f1-4464-8be1-df6e804021d1
+
+
 
