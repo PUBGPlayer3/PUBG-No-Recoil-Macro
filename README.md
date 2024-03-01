@@ -23,7 +23,7 @@ https://www.youtube.com/@little_edge
 <br>
 <h2>Discord</h2>
 https://discord.gg/nm2kk22kg6
-
+<h4>Join our Discord and Message in #get-recoil-software channel</h4>
 
 https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/ae4f07c3-0fc9-4676-a19c-0e2551aa526b
 
