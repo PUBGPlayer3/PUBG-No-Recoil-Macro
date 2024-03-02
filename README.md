@@ -31,4 +31,20 @@ https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/ae4f07c3-0f
 https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/9d895618-64f1-4464-8be1-df6e804021d1
 
 
+https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/1ba9f47e-42d0-426a-95c1-0109d76b544d
+
+
+https://github.com/PUBGPlayer3/PUBG-No-Recoil-Macro/assets/159410511/6b9d3038-4af5-43c7-9d22-771cc885839d
+
+
+
+
+
+
+
+
+
+
+
+
 
