@@ -11,6 +11,8 @@
   PUBG PC No Recoil Script
   <br>
   PUBG Battlegrounds No Recoil Macro Script Download
+  <br>
+  PUBG Mobile Emulator No Recoil  (EMULATOR SUPPORTED for PUBG Mobile)
 </h1>
 
 <br>
@@ -44,6 +46,20 @@ https://github.com/user-attachments/assets/316afcff-fbc5-454b-80c1-9080d3a381bc
 
 
 https://github.com/user-attachments/assets/045b666a-3a15-4c6f-a245-4822880dae7f
+
+
+https://github.com/user-attachments/assets/1e66214f-d92c-4340-ac0c-956a8c8747d2
+
+
+https://github.com/user-attachments/assets/5f57b6f4-b388-4a25-8b0f-a118aa7b7ad4
+
+
+https://github.com/user-attachments/assets/533c0e75-09fd-4282-b307-0f3f4a78c1e0
+
+
+https://github.com/user-attachments/assets/324d0484-1db2-4ae7-a59f-160280f23aed
+
+
 
 
 
