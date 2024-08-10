@@ -1,4 +1,8 @@
 
+https://github.com/user-attachments/assets/cf2f62a6-d58f-448b-82f9-7f472883741a
+
+https://github.com/user-attachments/assets/c93f9732-126d-4968-a45a-3a7f2c47aa22
+
 <h1 align="center">
   <br>
   PUBG No Recoil Macro
@@ -29,14 +33,20 @@ https://www.youtube.com/@little_edge
 <br>
 <h2>Discord</h2>
 https://discord.gg/nm2kk22kg6
-<h4>Join our Discord and Message in #get-recoil-software channel (its not free, thats why we won't mine Crypto)</h4>
+<h4>Join our Discord and Message in #get-recoil-software channel</h4>
 
 
 
+https://github.com/user-attachments/assets/047e7c29-5081-4cd2-b400-15b6fe55400e
 
 
+https://github.com/user-attachments/assets/11cab687-1e54-4062-8dfc-e307d425b697
 
 
+https://github.com/user-attachments/assets/316afcff-fbc5-454b-80c1-9080d3a381bc
+
+
+https://github.com/user-attachments/assets/045b666a-3a15-4c6f-a245-4822880dae7f
 
 
 
