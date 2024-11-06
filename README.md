@@ -31,7 +31,7 @@ https://vimeo.com/911518220
 https://www.youtube.com/@little_edge
 <br>
 <h2>Discord</h2>
-https://discord.gg/nm2kk22kg6
+https://discord.gg/eaFa4ahUyV
 <h4>Join our Discord and Message in #get-recoil-software channel</h4>
 
 
